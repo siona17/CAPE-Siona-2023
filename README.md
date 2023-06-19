@@ -1,1 +1,2 @@
 # CAPE-Siona-2023
+Hello! My name is Siona and I'm a rising senior at U of I. I graduate in 2024 and I'm majoring in journalism and minoring in information sciences. A fun fact about me is that I'm left handed and I love plants. 
